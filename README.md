@@ -1,8 +1,8 @@
-# Attack Your Device!!!
+# Buy an ipad replace Andro*
 
 
-Are you upset? Do you want to change your phone?
-Come on, attack your device!
+Are you upset? Do you want to change your device?
+Come on, buy an iPad!
 
 ![](1.png)
 
